@@ -1,0 +1,3 @@
+Kapamilya Channel (stylized as Kapamilya channel) is a 24-hour Philippine pay television network owned and operated by ABS-CBN Corporation, a company under Lopez Holdings Corporation owned by the López family. The network is headquartered at the ABS-CBN Broadcasting Center in Quezon City where it started broadcasting on June 13, 2020, also marking the media conglomerate's 74th anniversary.[1] A separate high definition 1080i resolution channel began broadcasting the same day.
+
+The network serves as the replacement of the main terrestrial ABS-CBN network after ceasing its free-to-air broadcast operations due to the loss of its legislative broadcast franchise in 2020. It carries most of the programs that ABS-CBN aired prior to the shutdown.[2]
